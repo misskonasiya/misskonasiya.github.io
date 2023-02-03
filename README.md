@@ -1,33 +1,19 @@
-# misskonasiya.github.io
-Xavier King V. Cedro
+**Xavi's Portfolio**
 
-"*Xavi*"
+Hi, I am Xavier Cedro of 9 - Campion. I am currently 14 years old as I am typing this in the year 2023. This page is all about the stuff that I like so that you can get to know me better. 
 
-**xavier cedro lifestyle**
+**ABOUT ME SECTION**
+
+![Screenshot 2023-02-03 193522](https://user-images.githubusercontent.com/122416352/216593782-d2c8aa36-6b28-458f-85a1-2216d66cf301.png)
+
+This is me and the big bear from vista mall:
+![326061562_708193120909384_1204736160106261375_n](https://user-images.githubusercontent.com/122416352/216592584-8e6c385b-6e74-4e50-a02a-8491db97909e.jpg)
 
 
-**"aral ng mabuti"**
+I am honestly very quiet if we aren't very close but once we get to know each other then I'll probably get very comfortable and even noisy.
 
-![dreamybull](https://user-images.githubusercontent.com/122416352/211981060-72d75e7e-5757-453a-a6c7-39dd65a29de5.jpg)
 
-**sadboi hours**
 
-![maxresdefault](https://user-images.githubusercontent.com/122416352/212786709-a48132c3-3c68-4a67-890e-91b36df1510b.jpg)
 
-**praise the lord**
-
-![Screenshot 2023-01-17 081126](https://user-images.githubusercontent.com/122416352/212786741-9df681be-c3f5-4e85-bd8a-09c5f54f8500.jpg)
-
-**eatwell**
-
-![maxresdefault (1)](https://user-images.githubusercontent.com/122416352/212786759-5e9a3ce3-bab4-4bfa-9312-50a4017793a1.jpg)
-
-**therapy**
-
-![Screenshot 2023-01-17 081727](https://user-images.githubusercontent.com/122416352/212786786-526ba550-b142-4cec-9f1d-ca4acee6cf94.jpg)
-
-**bebe time**
-
-![sad_emoji_meme](https://user-images.githubusercontent.com/122416352/212786818-cc3d9f70-d30d-445e-8c38-ce1069df3918.jpg)
 
 
