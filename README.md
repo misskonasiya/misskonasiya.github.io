@@ -14,8 +14,6 @@ I am honestly very quiet if we aren't very close but once we get to know each ot
 
 My friends refer to me as their "therapist because of the fact I love to listen to their problems and I give very good advice (most of the time)👍
 
-![Screenshot 2023-02-03 194348](https://user-images.githubusercontent.com/122416352/216595236-08f6852c-a1e7-47e4-8ffe-0c7cf3f51e14.png)
-
 
 ![Screenshot 2023-02-03 194734](https://user-images.githubusercontent.com/122416352/216595895-4a2d02cd-7e27-4e56-a756-49be6605a3e5.png)
 
@@ -63,7 +61,18 @@ It is a very odd piece of art and it has a lot of gore and some indecent scenes 
 
 ![Screenshot 2023-02-03 203425](https://user-images.githubusercontent.com/122416352/216604948-8c9d33bf-00a6-419e-8844-c4ba84b68de9.png)
 
-I've realized that 
+I've realized that happiness is something that comes and  goes. You will never know when it'll go away and when you'll be able to get it back. Which is why you should treasure that feeling while its still there. Spend time with your family, hang out with your friends, strengthen your relationships while they aren't gone yet. I learned this the hard way and am speaking from experience. I used to have this girl in my life. I expected us to be together forever so I neglected the relationship. Something went wrong but I never knew what it was. Now I am healing from that experience. This is why I love helping people with their problems especially in relationships because I have learned too much, gotten wiser and I don't want others to experience the things that I had to go through.
+
+
+![Screenshot 2023-02-05 155538](https://user-images.githubusercontent.com/122416352/216807954-1e185e2f-d77f-46a9-91aa-c59facc4397f.png)
+
+
+
+https://user-images.githubusercontent.com/122416352/216808236-8e81eb3b-a59c-47d0-a236-3f86ab9db233.mp4
+
+unfortunately I am unable to find any more videos that I have edited that are presentable. This is a video that I edited when I was in grade 8 (2021) hence the low quality, featuring many of my great friends.
+
+
 
 
 
