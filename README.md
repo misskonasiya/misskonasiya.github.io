@@ -22,14 +22,14 @@ My friends refer to me as their "therapist because of the fact I love to listen 
 
 ![editing-from-home-on-a-laptop](https://user-images.githubusercontent.com/122416352/216596378-b9d5fc4b-531a-476c-851e-aee2bc1b3e1d.jpg)
 
-I have always found the art of editing a fascinating thing. My friends always ask me to edit some videos for them and I am always happy to do so. I am quite confident in my editing skills and learning more tricks is always a good thing
+I have always found the art of editing a fascinating thing. My friends always ask me to edit some videos for them and I am always happy to do so. I am quite confident in my editing skills and learning more tricks is always a good thing.
 
 
 **Another one of my goals is being a house husband**
 
 ![MV5BOWZhZTE1NDAtODQ5Yy00NDQ3LWE5ZDctMTZjZmU5OGFiZWYwXkEyXkFqcGdeQXVyMTEzMTI1Mjk3 _V1_](https://user-images.githubusercontent.com/122416352/216597465-6239a9f8-6fa9-4706-b293-6b253c7ee44d.jpg)
 
-I am aware that being a house husband is a hard task but it's a sacrifice I am willing to take for my future wife. I'm lazy sometimes but when I know it's for a good cause then I'm willing to do it as soon as possible.
+I am aware that being a house husband is a hard task but it's a sacrifice I am willing to take for my future wife. I'm lazy sometimes but when I know it's for a good cause then I'm willing to do it as soon as possible. I am also very fond of cooking and doing other chores.
 
 
 **The last goal that I am going to share is have enough money to buy lots of cute toys**
@@ -61,7 +61,7 @@ It is a very odd piece of art and it has a lot of gore and some indecent scenes 
 
 ![Screenshot 2023-02-03 203425](https://user-images.githubusercontent.com/122416352/216604948-8c9d33bf-00a6-419e-8844-c4ba84b68de9.png)
 
-I've realized that happiness is something that comes and  goes. You will never know when it'll go away and when you'll be able to get it back. Which is why you should treasure that feeling while its still there. Spend time with your family, hang out with your friends, strengthen your relationships while they aren't gone yet. I learned this the hard way and am speaking from experience. I used to have this girl in my life. I expected us to be together forever so I neglected the relationship. Something went wrong but I never knew what it was. Now I am healing from that experience. This is why I love helping people with their problems especially in relationships because I have learned too much, gotten wiser and I don't want others to experience the things that I had to go through.
+I've realized that happiness is something that comes and  goes. You will never know when it'll go away and when you'll be able to get it back. Which is why you should treasure that feeling while its still there. Spend time with your family, hang out with your friends, strengthen your relationships while they aren't gone yet. I learned this the hard way and am speaking from experience. I used to have this girl in my life. I expected us to be together forever and neglected the relationship. Something went wrong but I never knew what it was, now I am healing from that experience. This is why I love helping people with their problems especially in relationships because I have learned too much, gotten wiser and I don't want others to experience the things that I had to go through.
 
 
 ![Screenshot 2023-02-05 155538](https://user-images.githubusercontent.com/122416352/216807954-1e185e2f-d77f-46a9-91aa-c59facc4397f.png)
